@@ -1,1 +1,0 @@
-# Livestock Trading and Management
